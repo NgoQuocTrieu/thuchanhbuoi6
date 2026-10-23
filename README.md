@@ -1,2 +1,2 @@
 # thuchanhbuoi6
-Triệu Lộc
+Triệu Đệ và Bố Lộc
